@@ -1,0 +1,1 @@
+This portfolio is part of my ongoing experiment with AI tools — exploring how technology can assist in presenting my resume and projects more creatively, while ensuring the core ideas and skills remain authentically mine.
